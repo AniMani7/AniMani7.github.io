@@ -1,1 +1,1 @@
-# AniMani7.github.io
+https://animani7.github.io/
